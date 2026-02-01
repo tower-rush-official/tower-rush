@@ -8,7 +8,7 @@
 
 ---
 
-<a href="https://cash500.vercel.app/" target="_blank" rel="noopener noreferrer">
+<a href="https://1wfafs.life/v3/5768/tower-rush?p=twyh" target="_blank" rel="noopener noreferrer">
   <img
     src="https://img.shields.io/badge/🏰_ИГРАТЬ_В_TOWER_RUSH-ff007f?style=for-the-badge&labelColor=111827"
     alt="Играть в Tower Rush (Тавер Раш) с промокодом YOU2"
